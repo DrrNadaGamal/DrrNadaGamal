@@ -8,7 +8,9 @@
    And For technology, collaboration could involve working on open-source projects, building applications, or participating in hackathons
 - 📫 How to reach me 
 https://www.facebook.com/profile.php?id=100004054771408&mibextid=ZbWKwL
+<br>
 https://www.instagram.com/nada_monofy?igsh=OGQ5ZDc2ODk2ZA%3D%3D
+<br>
 https://www.linkedin.com/in/nada-gamal-a078561b0/
 
 
